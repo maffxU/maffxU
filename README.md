@@ -9,4 +9,4 @@
 
 $\color{цвет}{\textsf{if u can't kill me this makes me some kind a God.}}$ <br>
 
-![rocknroll-keyboard.gif](https://github.com/user-attachments/assets/384a2cb7-04bc-45d5-aa1e-5e2a0d404486)
+[![kosac'i-lapki-gif.gif](https://i.postimg.cc/FFbjV59w/kosac'i-lapki-gif.gif)](https://postimg.cc/vDBgGKxv)
