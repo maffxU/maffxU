@@ -6,6 +6,5 @@
 
 ![загруженное (7)](https://github.com/user-attachments/assets/19ba7913-4169-4d80-af57-01db37c2e8a0)
 
-if u can't kill me this makes me some kind a God.
+<p align="center"><b>"</b> <em>if u can't kill me this makes me some kind a God.</em> <b>"</b></p>
 
-[![kosac'i-lapki-gif.gif](https://i.postimg.cc/FFbjV59w/kosac'i-lapki-gif.gif)](https://postimg.cc/vDBgGKxv)
